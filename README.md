@@ -1,0 +1,1 @@
+# Buyer-Segmentation-and-Investment-Profiling-for-Real-Estate-Market-Intelligence
